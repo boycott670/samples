@@ -1,1 +1,2 @@
-bull shit !
+working out 
+more work 
